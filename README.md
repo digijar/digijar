@@ -2,7 +2,7 @@
 - 👀 I’m interested in starting new coding projects anytime anywhere!
 - 🌱 I’m currently a Year 1 student at SMU!
 - 💞️ I’m looking to collaborate on automated projects!!
-- 📫 How to reach me @jaronthedragonslayer on telegram if you have any questions!
+- 📫 Feel free to reach me @jaronthedragonslayer on telegram if you have any questions!
 
 <!---
 digijar/digijar is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
