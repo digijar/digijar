@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @digijar
 - 👀 I’m interested in starting new coding projects anytime anywhere!
-- 🌱 I’m currently a Year 1 student at SMU!
+- 🌱 I’m currently a Year 2 Sophomore at SMU!
 - 💞️ I’m looking to collaborate on automated projects!!
 - 📫 Feel free to reach me @jaronthedragonslayer on telegram if you have any questions!
 
